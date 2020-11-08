@@ -1,5 +1,5 @@
 # Rebuttals to the same old boring tired arguments used to criticize Islam on /pol/
 
-### Muslims can't even ally with themselves
+### _Muslims can't even ally with themselves_
 
 Based on what evidence?
